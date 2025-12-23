@@ -18,7 +18,4 @@ I'm exploring the world of **blockchain, crypto, and Web3**.
 
 ⭐️ If you're also into crypto, feel free to connect and share ideas!
 1111
-eee
-3333
-fff
-rtty
+222
