@@ -17,13 +17,5 @@ I'm exploring the world of **blockchain, crypto, and Web3**.
 ---
 
 ⭐️ If you're also into crypto, feel free to connect and share ideas!
-11111111111111111111111111111111
-22222222222222222222222222222222
-dfdsfdf
-jkljkljkl
-hgjhgj
-14111
-jhgjghj
-hjghjjgjgjhj
-ddd
-sdsddfdfdsfsfdf
+
+yuyu
